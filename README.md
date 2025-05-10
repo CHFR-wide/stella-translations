@@ -1,0 +1,1 @@
+Stella no Mahou translations (it's really just that).
